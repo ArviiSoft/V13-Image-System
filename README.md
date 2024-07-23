@@ -5,8 +5,6 @@
 
 # 💵・Hatalarla Uğraşmak İstemiyorsanız Satın Alabilirsiniz
 https://www.itemsatis.com/discord/v13-image-system-1741355.html
-
-https://www.itempazar.com/discord-uye-nitro-sunucu/ozel-rpc-v2-96087
 # 
 #
 
